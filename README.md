@@ -1,0 +1,2 @@
+# Afri-coin
+African crypto
